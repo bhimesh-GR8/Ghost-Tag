@@ -10,26 +10,6 @@ Explore the Graveyard, Haunted School and Haunted Hospital. Earn Ghost Tokens, r
 
 Queue up with friends. Listen carefully. Something may be right behind you.
 
-Enter Ghost Tag, a spooky game that lets you hide, hunt and survive.
-
-There is one hunter. There is a swarm of phasing ghosts. Hunter must dodge the Reclaimer collect Ghost Tokens and unlock cosmetic looks. Can the hunter turn everyone human before time runs out? Bring friends. Survive all three haunted arenas.
-
-When the round begins, hunters search locations and try to stop the ghost. Ghosts can slip through walls stalk from the shadows and taunt hunters. Can hunters catch the ghost before time runs out?
-
-Explore the Graveyard, Haunted School and Haunted Hospital. Earn Ghost Tokens, roll for ghost skins and show off your favorite look.
-
-Queue up with friends. Listen carefully. Something may be right behind you.
-
-Enter Ghost Tag, a spooky game that lets you hide, hunt and survive.
-
-There is one hunter. There is a swarm of phasing ghosts. Hunter must dodge the Reclaimer collect Ghost Tokens and unlock cosmetic looks. Can the hunter turn everyone human before time runs out? Bring friends. Survive all three haunted arenas.
-
-When the round begins, hunters search locations and try to stop the ghost. Ghosts can slip through walls stalk from the shadows and taunt hunters. Can hunters catch the ghost before time runs out?
-
-Explore the Graveyard, Haunted School and Haunted Hospital. Earn Ghost Tokens, roll for ghost skins and show off your favorite look.
-
-Queue up with friends. Listen carefully. Something may be right, behind you.
-
 ## Play
 
 [Play Ghost Tag on Roblox](https://www.roblox.com/games/78887564033832/Ghost-Tag)
